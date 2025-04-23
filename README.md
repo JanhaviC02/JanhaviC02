@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @janhavichauhan
+# 👋 Hi, I’m @janhavi_chauhan
 
 ![Banner](https://www.shutterstock.com/image-vector/leadership-banner-web-icon-business-260nw-1126527452.jpg)
 
